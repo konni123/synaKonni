@@ -1,0 +1,2 @@
+- Hér kemur myndband að okkur spila frumgerð leiksins:
+-[myndband](https://www.youtube.com/watch?v=D0omhGzgDwM&feature=youtu.be&ab_channel=konradgudmundsson)
